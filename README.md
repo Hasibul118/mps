@@ -72,8 +72,8 @@ To become a leading provider of solar energy solutions by making renewable energ
 For inquiries, partnerships, or quotes:
 
 - 📧 Email: hasibshanto85@gmail.com  
-- 📱 Phone: +8801875167944  
-- 🌐 Website: www.modernpowersolutions.vercel.app  
+- 📱 Phone: +88018750167944  
+- 🌐 Website: modernpowersolutions.vercel.app/  
 
 ---
 
